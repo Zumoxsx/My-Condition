@@ -1,5 +1,5 @@
 # TAEFIDICE: 
-# El Trastorno de Aprendizaje Estratificado y Fragmentado por Impulsos Dopaminérgicos Cíclicos y Episódicos.
+# Trastorno de Aprendizaje Estratificado y Fragmentado por Impulsos Dopaminérgicos Cíclicos y Episódicos.
 
 ## Introducción
 **TAEFIDICE** —Trastorno de Aprendizaje Estratificado y Fragmentado por Impulsos Dopaminérgicos Cíclicos y Episódicos— es una condición cognitiva fascinante que caracteriza a individuos cuyas mentes navegan entre diversos intereses con una agilidad única, guiadas por intensos destellos de motivación. Esta condición, arraigada en la neurodivergencia y la curiosidad, se define por un aprendizaje que se acumula en capas fragmentadas, impulsado por picos dopaminérgicos que provocan saltos diarios entre temas. Lejos de ser un obstáculo, TAEFIDICE es una fortaleza que combina una memoria episódica robusta, una atención cíclica, y una capacidad interdisciplinaria para conectar ideas. Este artículo explora TAEFIDICE a través de la psicología y la neurociencia, ofreciendo una comprensión clara de su dinámica y estrategias para maximizar su potencial.
